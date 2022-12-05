@@ -29,3 +29,20 @@ https://www.youtube.com/watch?v=uXapuO0tgmc
 ### EnglishSpeeches
 
 https://youtube.com/@EnglishSpeeches
+
+### Passenger - Let Her Go (Lyrics)
+
+https://youtu.be/UqaApGePWVE
+
+### They took my baby from me
+
+```
+"I loved her so much, I still love her. I'm her mum."
+
+Hundreds of women in the UK, forced into giving up their babies for adoption in the 1950s, 60s and 70s, have called on the prime minister to issue a government apology.
+
+Up to 250,000 women in Britain were coerced into handing over their babies because they were unmarried.
+
+Many of the women never had more children and say the loss caused them to lead a lifetime of grief.
+```
+https://www.instagram.com/tv/CPVPX1Zsxww/?igshid=ZmRlMzRkMDU%3D
