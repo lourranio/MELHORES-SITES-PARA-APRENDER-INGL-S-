@@ -4,13 +4,13 @@
 
 → Aumentar o vocabulário: https://www.vocabulary.com/
 
-→ Aprender com vídeos: https://lnkd.in/dij_tafG
+→ Aprender com vídeos: https://pt.englishcentral.com/browse/videos
 
-→ Testar seu vocabulário: https://lnkd.in/dxhKfPwH
+→ Testar seu vocabulário: https://preply.com/en/learn/english/test-your-vocab
 
-→ Dicionário de collocations: https://lnkd.in/dZwu6HQG
+→ Dicionário de collocations: https://ozdic.com/
 
-→ Encontrar palavras em contexto: https://lnkd.in/dEm8J_5g
+→ Encontrar palavras em contexto: https://fraze.it
 
 → Curso de inglês gratuito (1): https://lnkd.in/d9xeCeHT
 
