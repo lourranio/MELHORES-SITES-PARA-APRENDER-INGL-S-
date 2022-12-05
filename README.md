@@ -3,13 +3,21 @@
 
 
 → Aumentar o vocabulário: https://lnkd.in/dTHJN3gA
+
 → Aprender com vídeos: https://lnkd.in/dij_tafG
+
 → Testar seu vocabulário: https://lnkd.in/dxhKfPwH
+
 → Dicionário de collocations: https://lnkd.in/dZwu6HQG
+
 → Encontrar palavras em contexto: https://lnkd.in/dEm8J_5g
+
 → Curso de inglês gratuito (1): https://lnkd.in/d9xeCeHT
+
 → Curso de inglês gratuito (2): https://lnkd.in/dC3FnaVj
+
 → Tirar dúvidas sobre o inglês: https://lnkd.in/dRsKPp_N
+
 → Praticar inglês com diversos recursos: https://lnkd.in/deeiziHV
 → Gírias em inglês: https://lnkd.in/dra-eh-R
 → Praticar conversação (1): https://lnkd.in/dgp8hEGe
