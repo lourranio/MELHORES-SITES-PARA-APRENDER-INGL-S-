@@ -2,7 +2,7 @@
 
 
 
-→ Aumentar o vocabulário: https://lnkd.in/dTHJN3gA
+→ Aumentar o vocabulário: https://www.vocabulary.com/
 
 → Aprender com vídeos: https://lnkd.in/dij_tafG
 
