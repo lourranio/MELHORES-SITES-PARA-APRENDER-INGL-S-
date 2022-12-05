@@ -25,3 +25,7 @@ https://www.youtube.com/watch?v=E1I0hAxGFXw
 
 ### Harry Styles - As It Was (Lyrics)
 https://www.youtube.com/watch?v=uXapuO0tgmc
+
+### EnglishSpeeches
+
+https://youtube.com/@EnglishSpeeches
