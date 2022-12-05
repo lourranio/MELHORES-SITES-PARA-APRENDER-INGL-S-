@@ -46,3 +46,22 @@ Up to 250,000 women in Britain were coerced into handing over their babies becau
 Many of the women never had more children and say the loss caused them to lead a lifetime of grief.
 ```
 https://www.instagram.com/tv/CPVPX1Zsxww/?igshid=ZmRlMzRkMDU%3D
+
+
+### Would Michelle Obama hug King Charles III if she had the chance? 👑
+
+https://www.instagram.com/reel/Ck-WCLFDKbQ/?igshid=MTI5NDc2ZGU%3D
+
+
+### English Vocabulary: other words for LIKE and DON'T LIKE
+
+https://www.youtube.com/watch?v=hPNCwE-hRRo
+
+### 
+
+https://www.instagram.com/reel/CiLaL9BOYme/?igshid=MTI5NDc2ZGU%3D
+
+### How to Link: words that begin with H - American English Pronunciation
+
+https://www.youtube.com/watch?v=QuOw_KnFk3Y&t=28s
+
