@@ -1,14 +1,21 @@
 60 LINKS PARA APRENDER INGLÊS DE GRAÇA
 
-📌 YOUTUBE - ENSINO DO IDIOMA
+## 📌 YOUTUBE - ENSINO DO IDIOMA
+
 1. 7ESL Learning English: lnkd.in/eYvFb-WK
+
 2. Speak English With Tiffani: lnkd.in/dYAMkS9M
+
 3. English Like A Native: lnkd.in/e8dUYs2b
+
 4. English with Lucy: lnkd.in/eDuZnp7k
+
 5. Rachel’s English: lnkd.in/d7XThBbN
+
 6. Nação Fluente: lnkd.in/dJ5Wu8hR
 
-📌 YOUTUBE - CONHECIMENTOS GERAIS
+## 📌 YOUTUBE - CONHECIMENTOS GERAIS
+
 7. CrashCourse: lnkd.in/d8evrfZM
 8. SciShow: lnkd.in/dAg-KwZC
 9. TED: lnkd.in/dZmC6rZB
